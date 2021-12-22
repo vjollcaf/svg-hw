@@ -1,1 +1,1 @@
-nuk eshte perfundu hala.
+nuk eshte perfundu hala 100%.
